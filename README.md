@@ -17,4 +17,4 @@ Enes Efe Tokta
 Hatice Merve Aslan
 
 Eksiklerimiz
-Youtube videomuzda eklediğiimz cutsceneleri oyunumuza ekledik ama düzenlemeye vaktimiz kalmadı tabi ki gözüksün diye videomuza koyduk :D
+Youtube videomuzda eklediğimiz cutsceneleri oyunumuza ekledik ama düzenlemeye vaktimiz kalmadı tabi ki gözüksün diye videomuza koyduk :D
