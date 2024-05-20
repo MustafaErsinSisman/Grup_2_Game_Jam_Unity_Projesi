@@ -10,7 +10,7 @@ Enes Efe Tokta
 Tasarım
 Mustafa Ersin Şişman
 Serenat Varol
-Hative Merve Aslan
+Hatice Merve Aslan
 
 Kod
 Enes Efe Tokta
